@@ -1,0 +1,1 @@
+Estas gráficas son las usadas en la parte teorica del trabajo.
